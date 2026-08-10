@@ -11,6 +11,8 @@ This project brings the classic MOBA experience into the Roblox universe with un
 
 > **⚠️ BY DOWNLOADING THIS FILE, YOU AGREE TO THE TERMS BELOW ⚠️**
 
+**Game is on roblox, but he get 16+:** [Blox 2](https://www.roblox.com/games/119675867173170/Blox-2)
+
 ---
 
 ## 📋 Table of Contents
